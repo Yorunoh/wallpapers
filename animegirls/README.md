@@ -29,6 +29,8 @@
 
 ![ryo-btr.png](./ryo-btr.png)
 
+![the-tunnel-to-summer-the-exit-of-goodbyes-5k.jpg](./the-tunnel-to-summer-the-exit-of-goodbyes-5k.jpg)
+
 ![evangelion.png](./evangelion.png)
 
 ![nadeshiko-and-rin.png](./nadeshiko-and-rin.png)
@@ -69,6 +71,8 @@
 
 ![oceanGirl.png](./oceanGirl.png)
 
+![Hanashiro.jpg](./Hanashiro.jpg)
+
 ![wtfMiku.png](./wtfMiku.png)
 
 ![shessostrong.jpg](./shessostrong.jpg)
@@ -84,6 +88,8 @@
 ![himeno.jpg](./himeno.jpg)
 
 ![pink-bg.jpg](./pink-bg.jpg)
+
+![summer-e-no-tunnel.jpg](./summer-e-no-tunnel.jpg)
 
 ![Chika Senpai.jpg](./Chika%20Senpai.jpg)
 
@@ -118,6 +124,8 @@
 ![shesocool_upscayl_5x_digital-art-4x.png](./shesocool_upscayl_5x_digital-art-4x.png)
 
 ![makima-landscape.png](./makima-landscape.png)
+
+![Kaoru-tono.jpg](./Kaoru-tono.jpg)
 
 ![gunmaid.png](./gunmaid.png)
 
